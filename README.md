@@ -1,4 +1,4 @@
-# ɪɴᴛʀᴏᴅᴜᴄᴛɪᴏɴ
+# P-I-A-N-Osaurus / ιɳƚɾσԃυƈƚισɳ
 
 ![blinkiesCafe-Sg](https://github.com/user-attachments/assets/17d31beb-fb17-4cb2-a830-37100659f227)
 
@@ -9,7 +9,7 @@
 
 ♬- 𝙷𝙴𝚈𝙾𝙾𝙾!!! 𝚈𝙾𝚄 𝙲𝙰𝙽 𝙲𝙰𝙻𝙻 𝙼𝙴 𝙰𝙶𝙴𝙽𝚃 𝙿𝙸𝙽𝙺 𝙾𝚁 𝙴𝙻𝚆𝙾𝙾𝙳, I LIKE TO DRAW AND MAKE CHARACTER DESIGNS!! 
 
-𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜: 𝙷𝚎/𝚑𝚒𝚖 , 𝚃𝚑𝚎𝚢/𝚝𝚑𝚎𝚖
+𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜: 𝙽𝚘𝚗-𝙱𝚒𝚗𝚊𝚛𝚢
 
 R𝙴𝙰𝙳 𝙼𝚈 𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴 𝙵𝙾𝚁 𝙼𝙾𝚁𝙴 𝙸𝙽𝙵𝙾 (..◜ᴗ◝..)
 
